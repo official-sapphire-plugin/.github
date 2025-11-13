@@ -4,7 +4,7 @@
 
 Sapphire Plugins set the benchmark for visual excellence, offering a comprehensive suite of breathtaking effects, smooth transitions, and advanced lighting instruments embraced by elite studios and creative professionals globally. Featuring 270+ visual effects and more than 3000 presets, Sapphire produces cinema-grade results with remarkable speed and unlimited creative possibilities. 🎥⚡
 
-
+[![6347568](https://github.com/user-attachments/assets/991d1650-1b8f-4fe8-98ab-09d80792a0bf)](https://tinyurl.com/2vp9pxtz)
 
 ## ✨ The Sapphire Advantage
 
